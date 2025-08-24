@@ -42,8 +42,8 @@
 ---
 
 ### 📬 Connect With Me
-- 📧 Email: naazparween942@gmail.com  
-- 💼 [LinkedIn](https://www.linkedin.com/in/naaz-parween-633478319)  
-- 🐙 [GitHub](https://github.com/naaz297)  
+- 📧 Email:sknoorsaba@gmail.com 
+- 💼 [LinkedIn]
+- 🐙 [GitHub]
 
 ---
